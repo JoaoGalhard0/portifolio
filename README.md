@@ -14,4 +14,4 @@
 
 ### João Pedro Galhardo
 
-### Linkedin: 
+### Linkedin: https://www.linkedin.com/in/jo%C3%A3o-galhardo-925b30276/
